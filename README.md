@@ -12,11 +12,11 @@
 At the same time, I want to be a...
 
 
-- ✈️ romantic traveler 🗺
+- ✈️ romantic Traveler 🗺
 
 - 👩🏻‍🍳 awesome Chef 👩🏻‍🍳
 
-- ✨ the happiest person✨
+- ✨ the Happiest person✨
 
 
 ---
