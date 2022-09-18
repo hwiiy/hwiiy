@@ -14,7 +14,7 @@ At the same time, I want to be a...
 
 - ✈️ romantic traveler 🗺
 
-- 👩🏻‍🍳 awesome shef 👩🏻‍🍳
+- 👩🏻‍🍳 awesome Chef 👩🏻‍🍳
 
 - ✨ the happiest person✨
 
