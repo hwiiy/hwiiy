@@ -9,14 +9,6 @@
 </img>
 
 >Hi, I want to be a front-end developer who makes a positive change in the world.<br>
-At the same time, I want to be a...
-
-
-- ✈️ romantic Traveler 🗺
-
-- 👩🏻‍🍳 awesome Chef 👩🏻‍🍳
-
-- ✨ the Happiest person✨
 
 
 ---
